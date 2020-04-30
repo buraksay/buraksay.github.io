@@ -1,1 +1,0 @@
-# buraksay.github.io
